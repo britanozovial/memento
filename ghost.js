@@ -1,0 +1,1 @@
+Ghost is nothing but the spirit 
